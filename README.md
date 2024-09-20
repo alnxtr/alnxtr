@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 🤓🤓
 
-meu nome e allan christian
+meu nome e allan
 
 Estou estudando na Alura
 
