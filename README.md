@@ -14,4 +14,4 @@ allan.chistian.ribeiro@escola.pr.gov.br
 @aln.xtr
 
 
-![](https://media1.tenor.com/m/8_Z8H7I6YKoAAAAd/bolsonaro-gamer.gif)
+![](https://media.tenor.com/PND6dbMpQysAAAAi/spongebob-sad-spongebob.gif)
